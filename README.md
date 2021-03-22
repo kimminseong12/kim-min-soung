@@ -1,2 +1,0 @@
-# kim-min-soung
-test
